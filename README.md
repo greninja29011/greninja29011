@@ -1,0 +1,5 @@
+- your mom
+-ur mom
+-urmom
+- urr mim
+-ur mam
